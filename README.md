@@ -1,6 +1,5 @@
-#Thanks for reading this
-
-#first CONTACT ME 
+# Thanks for reading this
+# first CONTACT ME 
 # my discord is Ed_Gein#8924
 # my skype is TOT9000 (DDoS me pussy i can change my ip)
 
